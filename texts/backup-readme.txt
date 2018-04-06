@@ -1,0 +1,4 @@
+I am very lucky when it comes to the Internet. Not only is English my first (and only) language, I adore cats. And cats are worshipped on the Web. I don’t really understand why, but cats seem to be the animal of choice amongst the population of the InterWebs. Dogs? Well, they’re nothing but second-class citizens, only really embraced when they’re still in puppy form. Once they reach maturity no one cares.
+
+Cats are everywhere online… as photos shared by friends on social networking sites, as cute pics on Reddit, on any of the cat-centric Tumblr sites, and even here on MakeUseOf. Oh, and then there’s Nyan Cat. There are even whole websites dedicated to our feline friends, eight of which are highlighted below. Some you will have already heard of, others will be new to you.
+ I like green eggs and ham

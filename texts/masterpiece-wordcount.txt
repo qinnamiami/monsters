@@ -1,0 +1,16 @@
+   28761 Goodman.txt
+   28761 backup-42.txt
+   78097 backup-frankenstein.txt
+     521 backup-horror12.txt
+     143 backup-readme.txt
+     315 backup-vampire.txt
+      91 backup-vapor.txt
+     412 dracula synopsis .txt
+   78097 frankenstein.txt
+     521 horror12.txt
+       0 masterpiece-wordcount.txt
+     143 readme.txt
+     576 sparkly vamps.txt
+     315 vampire.txt
+      91 vapor.txt
+  216844 total
